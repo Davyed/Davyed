@@ -1,6 +1,4 @@
-David/Scott, 20, he/him/they/them, 🇮🇹
-
-I'm delulu
+David/Scott, 20, 🇮🇹, I'm delulu
 
 Call me by the skin idm‼
 
